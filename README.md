@@ -1,0 +1,2 @@
+# TEC
+para la escuela 
